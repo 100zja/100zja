@@ -1,4 +1,4 @@
-### Hi there 🎶🎈
+### Hi PEOPLE 🎶🎈
 
 <!--
 **100zja/100zja** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
